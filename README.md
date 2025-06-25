@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://cg06-1.pages.dev/">伊人</a>
 
-点击访问：<a href="https://hl429.pages.dev/">黑料社</a>
+点击访问：<a href="https://hl429.pages.dev/">黑料社最新</a>
 
 点击访问：<a href="https://hl425.pages.dev/">揭秘黑料社</a>
 
